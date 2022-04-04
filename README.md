@@ -1,2 +1,1 @@
 Ana Teruya
-10
